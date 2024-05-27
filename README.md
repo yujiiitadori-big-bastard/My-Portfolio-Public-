@@ -19,4 +19,4 @@ For personal inquiries, you can reach out to me via email:
 - [jigarmaurya26.10.2010@gmail.com](mailto:jigarmaurya26.10.2010@gmail.com)
 - [jigarmaurya26.10.2010@proton.me](mailto:jigarmaurya26.10.2010@proton.me)
 
-This portfolio is a testament to my dedication to understanding and explaining the profound impact of AI on our world. Explore, learn, and connect with me as we navigate the fascinating journey of technological advancement together.
+This portfolio is a statement to my dedication to understanding and explaining the profound impact of AI on our world. Explore, learn, and connect with me as we navigate the fascinating journey of technological advancement together.
